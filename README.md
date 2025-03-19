@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @1224-HuangJin
+- 👋 Hi, I’m @1224-HuangJin(If you ask why I don’t call me @1224Huangjin but @1224-HuangJin, then it’s because I can’t log in with my previous account. . .)
 - 👀 I’m interested in GAME
 - 🌱 I’m currently learning Play GAME
 - 💞️ I’m looking to collaborate on GAME
